@@ -1,5 +1,1 @@
--92 years old
--senior programmar at mcdfonalds
--makes youtube videos under username "james charles"
--lives in russian
--speaks greenlandish, americish, and hispanish
+unloved & unleaded
